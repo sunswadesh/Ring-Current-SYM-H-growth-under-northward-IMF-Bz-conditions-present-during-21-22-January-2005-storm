@@ -1,0 +1,1 @@
+# Ring-Current-SYM-H-growth-under-northward-IMF-Bz-conditions-present-during-21-22-January-2005-storm
